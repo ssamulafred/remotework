@@ -1,0 +1,1 @@
+Motionless and static pages
